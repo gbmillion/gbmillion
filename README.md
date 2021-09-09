@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @gbmillion
-http://gbmxdev.infinityfreeapp.com/
+http://www.gbmxdev.com/
